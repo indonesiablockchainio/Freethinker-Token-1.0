@@ -1,0 +1,1 @@
+# Freethinker-Token-1.0
